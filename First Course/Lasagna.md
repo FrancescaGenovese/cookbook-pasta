@@ -15,4 +15,16 @@
 * 1/4 c.chopped parsley, plus more for garnish
 * 1 1/2 lb.sliced mozzarella 
 
-![Lasagna](https://www.google.com/search?q=lasagne+bologna&client=firefox-b-d&sxsrf=ACYBGNS3gW3rTX-yHsJKkko77xOoRSeApg:1570799170458&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiw8cX0opTlAhXEL1AKHdlICd4Q_AUIESgB&biw=599&bih=685#imgrc=mdghuLRcvjGzDM:)
+![Lasagna](http://www.visitingbologna.it/wp-content/uploads/2013/12/lasagna-700x350.jpg)
+
+## DIRECTIONS
+
+1. Preheat oven to 375º. In a large pot of salted boiling water, cook pasta according to package directions until al dente, less 2 minutes. Drain and drizzle a bit of olive oil to prevent noodles from sticking together.
+
+1. Meanwhile, in a large pot over medium-high heat, heat oil. Cook ground beef until no longer pink, breaking up with a wooden spoon, then drain fat. Return beef to skillet and add garlic and oregano and stir for 1 minute. Season with salt and pepper, then add marinara and stir until warmed through. 
+
+1. Combine ricotta, 1/4 cup Parmesan, and parsley in a large mixing bowl and season with salt and pepper. Set aside.
+
+1. In a large casserole dish, spread a thin layer of meat sauce, a single layer of lasagna noodles, a layer of ricotta mixture, and a  single layer of mozzarella, then repeat layers. Top last layer of noodles with meat sauce, Parmesan, and mozzarella. 
+
+1. Cover with foil and bake for 15 minutes, then increase temperature to 400º and bake uncovered for 18 to 20 minutes. Garnish with parsley and serve. 
