@@ -1,6 +1,6 @@
 # CLASSIC LASAGNA RECIPE
 
-##INGREDIENTS
+## INGREDIENTS
 
 * 3/4 lb. lasagna noodles
 * 1 tsp. extra-virgin olive oil, plus more for drizzling
